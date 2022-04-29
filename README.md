@@ -6,3 +6,5 @@
 - 💬 Ask me about early career advice in analytics, Google Analytics, and how to loop in Ableton Live.
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love making music and post on my [YouTube](https://youtube.com/benkates)
+
+[🖥 Check out my webiste for more work examples!](https://benkates.com)
